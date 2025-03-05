@@ -32,6 +32,8 @@ As the technical co-founder, you will be responsible for leading the development
 - Flexibility and autonomy in your role.
 
 ## How to Apply
-If you are passionate about AI, have experience in developing ERP solutions, and are excited about the opportunity to revolutionize the apparel manufacturing industry, please reach out to me at [your email address] with your resume and a brief description of why you are interested in this role.
+If you are passionate about AI, have experience in developing ERP solutions, and are excited about the opportunity to revolutionize the apparel manufacturing industry, please reach out to me at prime7biz@gmail.com with your resume and a brief description of why you are interested in this role.
+
+Whatsapp: +8801892787220
 
 Let's build something great together!
